@@ -1,1 +1,1 @@
-STORY 
+STORY - masterpiece
