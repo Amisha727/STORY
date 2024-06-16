@@ -1,1 +1,1 @@
-STORY - masterpiece
+SHORT STORY - my masterpiece 
